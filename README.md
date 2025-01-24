@@ -1,2 +1,2 @@
-## Hello you wonderful person 👋
+## Hello 👋
 
